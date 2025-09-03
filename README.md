@@ -1,0 +1,2 @@
+# ajay
+learning busniess
